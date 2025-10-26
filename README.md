@@ -48,7 +48,7 @@
 - تصحيح أو تحديث معلوماتك الشخصية  
 - حذف حسابك وكل البيانات المرتبطة به  
 
-📩 للتواصل معنا: [support.ancientegypt@app.com](mailto:support.ancientegypt@app.com)
+📩 للتواصل معنا: [mohamedkhaled329321@gmail.com](mailto:mohamedkhaled329321@gmail.com)
 
 ---
 
